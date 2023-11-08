@@ -16,3 +16,7 @@ Meu nome é Karla
 ### Você pode entrar em contato comigo🫀
 
 @krlinhaa_
+
+n.karla@escola.pr.gov.br 
+
+https://media.tenor.com/Zckwf2ALjhAAAAAC/spongebob-spongebob-squarepants.gif
